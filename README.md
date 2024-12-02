@@ -87,9 +87,3 @@ After the results of the 2024 US Presidential Election were apparent, some peopl
     * Biden's portrait will not be hung.
     * Barack and Michelle Obama's portraits will be taken down.
     * Many events that would typically occur in Washington, D.C. will be moved to Mar-a-Lago.
-
-## Contribute
-
-If you want to contribute anticipated outcomes to this website, please submit a pull request at [https://github.com/jeffhandley/what-is-the-worst](https://github.com/jeffhandley/what-is-the-worst/edit/main/index.md).
-
-For the sake of my own mental health, I will not be able to follow the news to see if any items on the list occur. If something on the list above has indeed occurred, pull requests are welcomed for updating the list with annotations.
