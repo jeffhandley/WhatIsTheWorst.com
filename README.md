@@ -8,6 +8,8 @@ After the results of the 2024 US Presidential Election were apparent, some peopl
 
 1. We will not have a free and fair US presidential election in 2028.
     * The election will either be canceled all-up with the Supreme Court upholding the move as an "official act," or some calamity will be manufactured to prevent a Democratic nominee from having any real chance of being competitive in the race.
+    * Before the 2026 midterms, voting rights will have been attacked with Democratic and minority voters overwhelmingly affected.
+    * Blatant gerrymandering will be upheld by the Supreme Court.
     * Republicans will retain majorities in the House of Representatives and the Senate beyond 2028 as a result.
     * He will declare that he is "President for Life" and will retain the presidency into what would be a 3rd term.
     * Other ultra-conservative Republicans will jockey for the position of being his successor, with the Vice President always under threat from other players.
@@ -92,3 +94,5 @@ After the results of the 2024 US Presidential Election were apparent, some peopl
     * Biden's portrait will not be hung.
     * Barack and Michelle Obama's portraits will be taken down.
     * Many events that would typically occur in Washington, D.C. will be moved to Mar-a-Lago.
+1. The 2030 census will be sabotaged even worse than the 2020 census was.
+    * Minorities and liberal regions will significantly lose representation.
