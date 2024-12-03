@@ -12,9 +12,9 @@ After the results of the 2024 US Presidential Election were apparent, some peopl
     * He will declare that he is "President for Life" and will retain the presidency into what would be a 3rd term.
     * Before January 2029, other ultra-conservative Republicans will jockey for the position of being his successor, with the Vice President always under threat from other players.
 1. Conservatives will gain a 7-2 SCOTUS majority before November 2028.
-    * Justice Sotomayor will be dramatically replaced, also with a justice younger than 50.
-    * Justices Thomas and Alito will retire and be replaced by justices younger than 50 years old.
-    * There will be attempts to oust justices Kagan and Jackson that might also succeeded.
+    * Justice Sotomayor will be dramatically replaced by a justice younger than 50.
+    * Justices Thomas and Alito will retire and be replaced by justices younger than 50.
+    * There will be attempts to oust justices Kagan and Jackson that might also succeed.
 1. Immigration will be overhauled with inhumane policies.
     * Mass deportation will be conducted.
     * Modern day concentration camps will be formed, acting as holding grounds for people suspected of being illegal immigrants.
@@ -76,7 +76,7 @@ After the results of the 2024 US Presidential Election were apparent, some peopl
 1. Prominent democrats and republicans who stood up to Trump will be charged with made-up crimes.
     * Adam Schiff, Fani Willis, Liz Cheney, Alvin Bragg, Letitia James, and Adam Kinzinger will be among the first targets.
     * They will retroactively be charged with violating laws enacted during this administration.
-    * Those who plead and/or otherwise expressed regret will not be.
+    * Those who plead guilty and/or otherwise expressed regret will not be.
 1. The vast majority of career federal employees will have their employment ended.
     * These positions will be replaced by appointed employees and contractors.
 1. The National Park system will be overhauled toward privatization.
