@@ -37,8 +37,8 @@ After the results of the 2024 US Presidential Election were apparent, some peopl
 1. Access to female contraception will be challenged and threatened, perhaps successfully.
     * Access will be chipped away bit by bit until only the rich have legal access.
 1. Hormone Replacement Therapy (HRT) will be federally outlawed for minors.
-    * It will become a federal felony for doctors or parents to provide care for minors suffering from gender dysphoria or other gender identity related issues.
-    * A federal reporting system will be created for reporting doctors or parents who provide gender care to minors.
+    * It will become a federal felony for doctors or parents to provide gender-affirming care for minors.
+    * A federal reporting system will be created for reporting doctors or parents who provide gender-affirming care to minors.
 1. Transgender people will lose all protective rights federally.
     * Marriage involving someone identifying as transgender will be outlawed.
 1. Same-sex marriage will lose its federal recognition, with the SCOTUS overturning past rulings.
