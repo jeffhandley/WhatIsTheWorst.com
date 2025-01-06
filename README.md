@@ -48,7 +48,7 @@ After the results of the 2024 US Presidential Election were apparent, some peopl
     * Federal funding will be tied to this move.
 1. Public schools will be forced to follow regressive policies, or they will lose all their federal funding:
     * They will have to teach binary gender without any reference to gender dysphoria or gender identity.
-    * They eill have to keep copies of Trump's bible in every classroom.
+    * They will have to keep copies of Trump's bible in every classroom.
     * Textbooks and lesson plans will have to remove all "unpatriotic ideas" from teachings, including anything that paints the January 6th riots in 2021 as unpatriotic.
     * All vaccine requirements will have to be discontinued.
     * These regulations will extend to public universities.
