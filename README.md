@@ -11,7 +11,8 @@ After the results of the 2024 US Presidential Election were apparent, some peopl
     * Before the 2026 midterms, voting rights will have been attacked with Democratic and minority voters overwhelmingly affected.
     * Blatant gerrymandering will be upheld by the Supreme Court.
     * Republicans will retain majorities in the House of Representatives and the Senate beyond 2028 as a result.
-    * He will declare that he is "President for Life" and will retain the presidency into what would be a 3rd term.
+1. He will declare that he is "President for Life" and will retain the presidency into what would be a 3rd term.
+    * The declaration will happen on July 4, 2026, the 250th (Semiquincentennial) anniversary of the United States Declaration of Independence.
     * Other ultra-conservative Republicans will jockey for the position of being his successor, with the Vice President always under threat from other players.
 1. Conservatives will gain a 7-2 SCOTUS majority before November 2028.
     * Justice Sotomayor will be dramatically ousted and replaced by a justice younger than 50.
